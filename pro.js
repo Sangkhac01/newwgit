@@ -3,7 +3,7 @@
     "hiiiiii",
     "Anh Sang ơi em yêu anh vãi lồn em nứng lắm rồi",
     "Chào cậu chủ ạ :3",
-    "Liên hệ ad qua zalo 0376026556",
+    "Liên hệ ad Sang qua zalo 0376026556",
     "Bé xin chào ngài ạ UwU",
     "Chào mừng cậu chủ trở lại",
     "Chào mừng ngài trở lại ạ",
